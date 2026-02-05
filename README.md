@@ -1,4 +1,4 @@
-# Olá! Eu sou a Mayza 👋
+# Mayza Frateschi 👋
 
 🎯 **Analista de QA (Quality Assurance)**  
 📍 Dubai | 🇧🇷 Brasileira
